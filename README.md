@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @heyraunak
 - 👀 I’m interested in playing with Data
 - 🌱 I’m currently learning ...Data science
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on .a startup idea !..
 - 📫 How to reach me ...jharaunak183@gmail.com
 
 <!---
